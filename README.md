@@ -40,9 +40,9 @@ Having recently graduated, I am now looking to join for the long-term a business
 ***
 
 ### Languages skills:
-French (mother tongue)
-English (Fluent)
-Spanish (intermediate).
+- French (mother tongue)
+- English (Fluent)
+- Spanish (intermediate).
 
 ***
 
